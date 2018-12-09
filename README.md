@@ -1,0 +1,2 @@
+# omou.life
+omou.life
